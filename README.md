@@ -102,7 +102,7 @@ To contribute:
 
 ## Contact
 
-Suggestions or questions? Email me at: \[Your Email Here\]
+Suggestions or questions? Email me at: kharatpushp16@outlook.com
 
 ## License
 
